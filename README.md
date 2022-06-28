@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @obasphereltd
+- 👋 Hi, I’m @obasphereHq
 - 👀 I’m interested in providing Enterprise Solutions
 - 💞️ I’m looking to collaborate with top talents and industries
 - 📫 How to reach me +234-708-303-3039
